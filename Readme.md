@@ -8,4 +8,4 @@ educational resources, Zolaverse is the ultimate destination for all your crypto
 
 Visit the Zolaverse: https://zolaverse.net
 
-Read More: https://documents.zolaecosystem.org/ecosystem/zolaverse
+Read More: https://documents.zolaecosystem.org/ecosystem/zolaverse/
