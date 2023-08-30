@@ -6,6 +6,6 @@ Zolaverse delivers daily updates on the latest developments in the world of Bitc
 and overall blockchain technology. With its daily news updates, real-time market data, and 
 educational resources, Zolaverse is the ultimate destination for all your crypto needs.
 
-Visit the Zolaverse: https://zolaverse.net/
+Visit the Zolaverse: https://zolaverse.net
 
 Read More: https://documents.zolaecosystem.org/ecosystem/zolaverse/
